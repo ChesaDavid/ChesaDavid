@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on a diversity of projects using different languages and technologies<br>I'm looking to collaborate with anyone <br>I want to become a great coder and developer
+I'm currently working on a diversity of projects using different languages and technologies<br>I'm looking to collaborate with anyone <br>I want to become a great coder and developer <br> I want to study at TU Eindhoven 
 
 
 ## 🌐 Socials:
